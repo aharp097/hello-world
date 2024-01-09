@@ -1,2 +1,3 @@
 # hello-world
 repository example for CEN4090L
+My name is Autumn Harp and I am in my (hopefully) last semester at FSU. This has been a drag given my first 5 years of college consisted of working part time on classes while working to pay for them. I have waited long enough and have been grinding hard to finish out my degree. I like hanging out with family and generally cutting up. I've been trying to get myself back into shape, too, given that I've gone all soft since going full time at FSU (happens to the best of us, right?). I'm hoping all this hard work I'm putting into generally living is going to pay off at some point.
